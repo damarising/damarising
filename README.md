@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on github community...
 - 📫 How to reach me ...
 - donwarri@gmail.com
-- tel: +237 653850190
+- tel: +237
 - twitter @WARRIEMMANUEL1
 - linkedin @linkedin.com/in/warri-emmanuel-aa9a5a1a0
 
